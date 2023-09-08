@@ -8,6 +8,8 @@
 
 交流QQ群：902875713
 
+E-Mail：mail@carrilson.com
+
 软件主页：
 
-E-Mail：mail@carrilson.com
+安装和使用手册：
