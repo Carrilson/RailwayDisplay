@@ -10,6 +10,6 @@
 
 E-Mail：mail@carrilson.com
 
-软件主页：
+软件主页：https://carrilson.com/?id=5
 
-安装和使用手册：
+安装和使用手册：https://www.bilibili.com/video/BV15p4y1j7Lk/
